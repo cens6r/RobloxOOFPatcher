@@ -1,3 +1,5 @@
+doesnt work n im too lazy to fix it just search on youtube
+
 # RobloxOOFPatcher
 gets the old roblox oof sound back!
 
